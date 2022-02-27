@@ -15,8 +15,8 @@ But have forgotten that. I am in America and it’s going to come to citizen's t
 guns here soon if not coming together. We have a trucker convoy that has started but it will 
 not work because the change will be insignificant and many won’t support them because they 
 wave Trump flags. However when the demands are of a shared nature you may see the unthinkable 
-when democrats and republicans come together. This will only happen when the number of people involved 
-is large and loud enough it will then transcend political affiliation. Turning the voice of few into the entirety is a must. 
+when democrats and republicans come together and when this happens when the number of people involved 
+is large and loud enough it will then transcend political affiliation and can not be denied. Turning the voice of few into the entirety is a must. 
 This should eliminate the divide these assholes use against us by everyone having a seat at the table.
  Just looking for a dapp that you can list your proposed demands in number fashion and keeps track of 
 key words such as term limits to put in order of most popular ideas. Don’t want prewritten ideas as that 
